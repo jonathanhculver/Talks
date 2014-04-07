@@ -1,0 +1,1 @@
+A talk I gave to 20 highschool juniors and seniors at my old Highschool about my journey from growing up on a farm to working at a tech startup in NYC.
